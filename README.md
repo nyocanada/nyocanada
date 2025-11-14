@@ -1,5 +1,4 @@
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![](https://media1.tenor.com/m/258_FPLKS_IAAAAd/kikuyao-nichu.gif)
-![](https://64.media.tumblr.com/682375078f299b359ac6a203ce5618d2/c62fdc1469cdaf60-d4/s640x960/59c16c22c4737124177d1644a48d523b307a0ac6.gifv)
 <!-- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 **nyocanada/nyocanada** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
