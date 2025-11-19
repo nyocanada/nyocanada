@@ -5,5 +5,5 @@
 [rentry](https://rentry.co/girlyberry) ‎ ‎‎ ‎ ‎  [ata](https://hihiin.atabook.org) ‎ ‎‎ ‎ ‎  ‎‎[ext](https://rentry.co/interbind) ‎ ‎ 
 
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎
-![](https://komarev.com/ghpvc/?username=nyocanada&color=9F4446&style=plastic&label=prevent+billiards+!)
+![](https://komarev.com/ghpvc/?username=nyocanada&color=9F4446&style=pixel&label=prevent+billiards+!)
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
