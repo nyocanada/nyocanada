@@ -1,4 +1,4 @@
- ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎   ‎ ‎‎ ‎ ‎    ![](https://media1.tenor.com/m/W7AoTYokGsUAAAAC/sirius-symboli-sirius.gif)
+![](https://media1.tenor.com/m/ADQrXSFMZfsAAAAC/sirius-symboli-sirius-umamusume.gif)
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
