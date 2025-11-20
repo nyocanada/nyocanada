@@ -9,10 +9,9 @@
     <img width="300" src="https://media1.tenor.com/m/DbyqZPPKcjgAAAAC/%E3%82%A6%E3%83%9E%E5%A8%98-uma-musume.gif">
 </p>
 
-‎ ‎ ‎‎ ‎ ‎
-‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎‎ ‎ ‎ ‎‎ ‎‎ ‎ 
-‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ [rentry](https://rentry.co/girlyberry) ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎  [ata](https://hihiin.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎[ext](https://rentry.co/interbind) ‎ ‎ 
+<div align="center">
 
-‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎  ‎‎
+[rentry](https://rentry.co/girlyberry) ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎  [ata](https://hihiin.atabook.org) ‎ ‎‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎ ‎  ‎‎[ext](https://rentry.co/interbind)
 
+</div>
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
