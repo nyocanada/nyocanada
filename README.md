@@ -6,7 +6,7 @@
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
 
 <p align="center">
-    <img width="300" src="https://media1.tenor.com/m/CtSuD3oe8MYAAAAC/gold-ship-uma-musume.gif">
+    <img width="300" src="https://media1.tenor.com/m/H-CBgAdCqdkAAAAC/uma-musume-uma-musume-pretty-derby.gif">
 </p>
 
 <div align="center">
