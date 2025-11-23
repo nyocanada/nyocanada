@@ -16,7 +16,7 @@
 </div>
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=himephile&color=6756B6&style=plastic&label=VICTIMS)
+![](https://komarev.com/ghpvc/?username=himephile&color=blue&style=plastic&label=VICTIMS)
 
 </div>‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎
 
