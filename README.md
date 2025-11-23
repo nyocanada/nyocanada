@@ -6,7 +6,7 @@
 
 </div>
 <div align="center">
-shes so wild , so animal !
+shes so wild , so animal !  (=`ω´=)
 
 
 </div>‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎  ‎ 
